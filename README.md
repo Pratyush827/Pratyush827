@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on making web apps and hackathons
 - 📫 You can reach me via instagram, messenger and gmail (tamrakarpratyush7@gmail.com)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Don't have friends.
+- ⚡ Fun fact: Don't have friends.I am an ambivert(mixture of introvert and extrovert).
 
 <!---
 Pratyush827/Pratyush827 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
